@@ -37,7 +37,7 @@ Manfaat dari daun seledri sebagai berikut:
 ### 3. Sebagai bahan makanan
 1. Dapat menghilangkan bau dan amis.
 2. Penyegar makanan.
-Makanan yang menggunakan dau selederi sangat banyak, contohnya:
+#### Makanan yang menggunakan dau selederi sangat banyak, contohnya:
 1. Masakan tumis.
 2. Oseng.
 3. orek tempe.
