@@ -11,7 +11,7 @@ Daun pepaya dapat dimanfaatkan untuk beberapa hal:
 4. Memiliki efek antimilasi
 5. Mempercepat pertumbuhan rambut
 6. Meningkatkan kesehatan kulit
-### 2. Sebagai bahan makanan
+### 2. Untuk Pengolahan
 1. Dijadikan sebagai tumis daun pepaya
 2. Lalapan
 3. Buntil
@@ -32,9 +32,14 @@ Manfaat dari daun seledri sebagai berikut:
 6. Mengatasi dehidrasi
 ### 2. Untuk Pengolahan
 1. Air rebusan seledri
-2. jus
-## 3. Sebagai bahan makanan
+2. jus seledri
+3. keripik seledri
+### 3. Sebagai bahan makanan
 1. Dapat menghilangkan bau dan amis
 2. Penyegar makanan
+Makanan yang menggunakan dau selederi sangat banyak, contohnya:
+1. Masakan tumis
+2. Oseng
+3. orek tempe
 ## Kandungan Gizi
 Daun seledri memiliki kandungan berupa air, protein, lemak, karbohidrat, serat, kalsium, fosfor, zat besi, natrium, kalium, karoten, thiamin, riboflavin, vitamin B1, vitamin B2, vitamin C. Dengan kandungan gizi seperti itu, daun seledri tentunya memiliki beragam manfaat untuk dikonsumsi
