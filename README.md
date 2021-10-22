@@ -5,16 +5,16 @@ Daun pepaya adalah daun yang tumbuh dari pohon pepaya (Carica Papaya). Daun ini 
 ## Manfaat
 Daun pepaya dapat dimanfaatkan untuk beberapa hal:
 ### 1. Untuk Kesehatan
-1. mengobati demam berdarah
-2. Mengontrol gula darah
-3. Memperbaki sistem pencernaan
-4. Memiliki efek antimilasi
-5. Mempercepat pertumbuhan rambut
-6. Meningkatkan kesehatan kulit
+1. mengobati demam berdarah.
+2. Mengontrol gula darah.
+3. Memperbaki sistem pencernaan.
+4. Memiliki efek antimilasi.
+5. Mempercepat pertumbuhan rambut.
+6. Meningkatkan kesehatan kulit.
 ### 2. Untuk Pengolahan
-1. Dijadikan sebagai tumis daun pepaya
-2. Lalapan
-3. Buntil
+1. Dijadikan sebagai tumis daun pepaya.
+2. Lalapan.
+3. Buntil.
 ### 3. Sebagai makanan untuk ikan bawal
 ### 4. Sebagai bahan pestisida nabati
 ## Kandungan Gizi
@@ -24,22 +24,22 @@ Daun Seledri adalah daun yang digunakan untuk sayuran atau sebagai tumbuhan obat
 ## Manfaat
 Manfaat dari daun seledri sebagai berikut:
 ### 1. Untuk Kesehatan
-1. Menurunkan tekanan darah
-2. Mengontrol gula darah
-3. Menghambat perkembangan kolestrol
-4. Meringankan nyeri sendi
-5. Mencegah kanker
-6. Mengatasi dehidrasi
+1. Menurunkan tekanan darah.
+2. Mengontrol gula darah.
+3. Menghambat perkembangan kolestrol.
+4. Meringankan nyeri sendi.
+5. Mencegah kanker.
+6. Mengatasi dehidrasi.
 ### 2. Untuk Pengolahan
-1. Air rebusan seledri
-2. jus seledri
-3. keripik seledri
+1. Air rebusan seledri.
+2. jus seledri.
+3. keripik seledri.
 ### 3. Sebagai bahan makanan
-1. Dapat menghilangkan bau dan amis
-2. Penyegar makanan
+1. Dapat menghilangkan bau dan amis.
+2. Penyegar makanan.
 Makanan yang menggunakan dau selederi sangat banyak, contohnya:
-1. Masakan tumis
-2. Oseng
-3. orek tempe
+1. Masakan tumis.
+2. Oseng.
+3. orek tempe.
 ## Kandungan Gizi
-Daun seledri memiliki kandungan berupa air, protein, lemak, karbohidrat, serat, kalsium, fosfor, zat besi, natrium, kalium, karoten, thiamin, riboflavin, vitamin B1, vitamin B2, vitamin C. Dengan kandungan gizi seperti itu, daun seledri tentunya memiliki beragam manfaat untuk dikonsumsi
+Daun seledri memiliki kandungan berupa air, protein, lemak, karbohidrat, serat, kalsium, fosfor, zat besi, natrium, kalium, karoten, thiamin, riboflavin, vitamin B1, vitamin B2, vitamin C. Dengan kandungan gizi seperti itu, daun seledri tentunya memiliki beragam manfaat untuk dikonsumsi.
